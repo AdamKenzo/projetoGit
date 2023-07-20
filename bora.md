@@ -1,0 +1,1 @@
+Bora jogar Valorant? Meu nick é AdamKenz0.
