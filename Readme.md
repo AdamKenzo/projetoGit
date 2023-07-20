@@ -1,2 +1,2 @@
-Tentando entender o Git
+Aprendendo o Git
 Isso é uma alteração
